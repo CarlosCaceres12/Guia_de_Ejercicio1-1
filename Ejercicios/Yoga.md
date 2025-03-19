@@ -24,3 +24,14 @@ ChatGPT dijo:
 🛑 6. Relájate y disfruta → La práctica es tanto física como mental.
 
 🔥 ¡Fluye con el yoga y encuentra tu equilibrio! ✨🧘‍♂️
+
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para el Yoga
+✅ Calienta antes de empezar → Evita lesiones y mejora la flexibilidad.
+🧘‍♂️ Escucha tu cuerpo → No fuerces las posturas, progresa con paciencia.
+🌬 Respira correctamente → La respiración profunda ayuda a la concentración y relajación.
+📏 Mantén una buena alineación → Protege tu espalda y articulaciones.
+💦 Hidrátate y descansa → Especialmente en sesiones intensas.
+🛑 Consulta con un instructor si eres principiante → Aprende la técnica adecuada.
+
+🔥 ¡Disfruta del yoga con seguridad y equilibrio! ✨🧘‍♀️
