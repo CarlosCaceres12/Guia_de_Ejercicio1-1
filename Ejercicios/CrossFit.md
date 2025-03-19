@@ -22,3 +22,14 @@ El CrossFit es un programa de entrenamiento de alta intensidad que combina ejerc
 🛑 6. Escucha tu cuerpo → Descansa cuando sea necesario y evita lesiones.
 
 🔥 ¡Entrena con intensidad y supera tus límites! 💪🔥
+
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para CrossFit
+✅ Calienta correctamente → Evita lesiones preparando músculos y articulaciones.
+🏋️‍♂️ Prioriza la técnica sobre la velocidad → Un buen movimiento previene lesiones.
+📏 No levantes más peso del que puedes manejar → Aumenta la carga de forma progresiva.
+🌬 Respira adecuadamente → Controla la respiración para mantener estabilidad.
+💦 Hidrátate bien → Evita calambres y fatiga.
+🛑 Escucha a tu cuerpo → Descansa si sientes dolor o fatiga extrema.
+
+🔥 ¡Entrena con seguridad y alcanza tu máximo rendimiento! 💪🔥
