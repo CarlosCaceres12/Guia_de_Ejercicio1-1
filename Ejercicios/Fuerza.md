@@ -22,3 +22,13 @@ La fuerza es la capacidad del cuerpo para generar tensión muscular y vencer una
 🛑 6. Escucha tu cuerpo → No ignores el dolor o el sobreentrenamiento.
 
 🔥 ¡Entrena con constancia y hazte más fuerte cada día! 💪🚀
+
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para Entrenar Fuerza
+✅ Calienta siempre → Evita lesiones con movilidad y estiramientos.
+🏋️ Usa buena técnica → La postura correcta es clave para progresar sin riesgos.
+📈 Aumenta el peso poco a poco → No te exijas demasiado desde el inicio.
+💦 Descansa y recupérate → Los músculos crecen mientras descansas.
+🛑 Escucha tu cuerpo → Si sientes dolor, detente y revisa tu técnica.
+
+🔥 Entrena con inteligencia y fortalece tu cuerpo! 💪🚀
