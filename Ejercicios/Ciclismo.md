@@ -14,3 +14,14 @@ El ciclismo es un deporte y medio de transporte basado en el uso de la bicicleta
 🦵 De bajo impacto → Protege las articulaciones, ideal para todas las edades.
 
 🔥 ¡Pedalea fuerte y disfruta cada kilómetro! 🚵💨
+
+# Instruciones de Ciclismo 
+🚴‍♂️ Instrucciones para un Buen Ciclismo
+✅ 1. Ajusta tu bicicleta → Verifica la altura del sillín y la posición del manillar.
+🛠 2. Usa el equipo adecuado → Casco, guantes, ropa cómoda y luces si es necesario.
+🚦 3. Respeta las normas de tránsito → Circula con precaución y sigue las señales.
+💦 4. Mantente hidratado → Lleva agua para evitar la deshidratación.
+📈 5. Pedalea con ritmo constante → Controla la cadencia para evitar fatiga.
+🛑 6. Escucha tu cuerpo → Si sientes fatiga o molestias, descansa.
+
+🔥 ¡Disfruta del camino y pedalea con seguridad! 🚵💨
