@@ -25,3 +25,14 @@ El ciclismo es un deporte y medio de transporte basado en el uso de la bicicleta
 🛑 6. Escucha tu cuerpo → Si sientes fatiga o molestias, descansa.
 
 🔥 ¡Disfruta del camino y pedalea con seguridad! 🚵💨
+
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para el Ciclismo
+✅ Usa siempre casco → Protege tu cabeza ante cualquier caída.
+🚴‍♂️ Ajusta tu bicicleta → La altura del sillín y el manillar deben ser cómodos.
+💡 Hazte visible → Usa luces y ropa reflectante en zonas de poca visibilidad.
+💦 Mantente hidratado → Bebe agua antes, durante y después del recorrido.
+🛑 Respeta las normas de tránsito → Señaliza tus movimientos y respeta semáforos.
+🛠 Revisa tu bicicleta antes de salir → Frenos, llantas y cadena en buen estado.
+
+🔥 ¡Pedalea seguro y disfruta la ruta! 🚵💨
