@@ -22,3 +22,14 @@ El entrenamiento funcional es un método de ejercicio basado en movimientos natu
 🛑 6. Escucha a tu cuerpo → Descansa si sientes fatiga o molestias.
 
 🔥 ¡Muévete con energía y mejora tu rendimiento! 💯🏋️‍♀️
+
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para el Entrenamiento Funcional
+✅ Calienta antes de entrenar → Reduce el riesgo de lesiones y mejora el rendimiento.
+🏋️‍♂️ Empieza con movimientos básicos → Asegura una técnica correcta antes de aumentar la intensidad.
+📏 No sacrifiques la postura por velocidad → La calidad del movimiento es clave.
+🌬 Respira correctamente → Controla la respiración para mayor estabilidad y fuerza.
+💦 Hidrátate bien → Evita el agotamiento y mejora la recuperación.
+🛑 Descansa y escucha tu cuerpo → No entrenes con dolor o fatiga extrema.
+
+🔥 ¡Entrena con inteligencia y alcanza tus objetivos con seguridad! 💯💪
