@@ -8,7 +8,7 @@ Bienvenido a nuestra guía de ejercicios físicos, donde compartimos descripcion
 - [Ejercicio de Ciclismo](ejercicios/Ciclismo.md): Gran ejercicio cardiovascular de bajo impacto.
 - [Ejercicio de CrossFit](ejercicios/Crossfit.md): Entrenamiento intensivo y funcional.
 - [Ejercicio de Entrenamiento_Funcional](ejercicios/Entrenamiento_Funcional.md): Mejora la fuerza en movimientos cotidianos.
-- [Ejercicio de Flexibilidad](ejercicios/Flexibilidad.md): Mejora la movilidad y reduce el riesgo de lesiones.
+- [Ejercicio de Flexibilidad](./ejercicios/Flexibilidad.md): Mejora la movilidad y reduce el riesgo de lesiones.
 - [Ejercicio de Fuerza](ejercicios/Fuerza.md): Aumenta la masa muscular y la fuerza.
 - [Ejercicio de Natación](ejercicios/Natacion.md): Trabaja todos los grupos musculares de manera suave.
 - [Ejercicio de Pilates](ejercicios/Pilates.md): Fortalece el núcleo y mejora la postura.
