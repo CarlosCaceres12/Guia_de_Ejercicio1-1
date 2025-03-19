@@ -22,3 +22,13 @@ El cardio (ejercicio cardiovascular) es cualquier actividad física que eleva el
 🛑 6. Escucha tu cuerpo → Descansa si sientes fatiga extrema o dolor.
 
 🔥 ¡Muévete, disfruta y mejora tu resistencia cada día! 💪💖
+
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para Cardio
+✅ Calienta antes de empezar → Evita lesiones con movilidad y estiramientos.
+💦 Hidrátate bien → Bebe agua antes, durante y después del ejercicio.
+🏃‍♂️ Aumenta la intensidad poco a poco → No te exijas demasiado al inicio.
+🎧 Hazlo divertido → Usa música o cambia de rutina para no aburrirte.
+🛑 Escucha a tu cuerpo → Si sientes mareo o dolor, detente y descansa.
+
+🔥 Disfruta el cardio y cuida tu cuerpo! 💪💖
