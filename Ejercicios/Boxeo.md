@@ -37,3 +37,23 @@ Aprende a esquivar (slips), bloquear y moverte lateralmente.
 🔸 Trabajo con el saco de boxeo para desarrollar potencia y resistencia.
 🔸 Sparring (con supervisión) para aplicar las técnicas en combate controlado.
 🔸 Ejercicios de acondicionamiento, como abdominales, flexiones y sprints, para mejorar la resistencia.
+
+# Consejos y Precausiones
+🥊 Consejos y Precauciones en el Boxeo
+✅ Técnica y Seguridad
+✔ Aprende la técnica antes de aumentar la intensidad → Domina los movimientos básicos (jab, cross, hook, uppercut) antes de enfocarte en la potencia.
+✔ Mantén siempre la guardia alta → Protege tu rostro y mantén los codos pegados al cuerpo.
+✔ Usa vendajes y guantes adecuados → Evita lesiones en muñecas y nudillos al golpear.
+✔ No sacrifiques la técnica por velocidad o fuerza → Es mejor ejecutar golpes bien hechos que lanzar muchos con mala forma.
+
+🏃‍♂️ Entrenamiento y Rendimiento
+✔ Realiza un buen calentamiento → Dedica 10-15 minutos a movilidad y estiramientos dinámicos.
+✔ Respira correctamente → Exhala al lanzar golpes y mantén la respiración controlada.
+✔ Escucha a tu cuerpo → Evita el sobreentrenamiento y descansa lo necesario.
+✔ Trabaja en tu resistencia → Alterna sesiones de boxeo con ejercicios cardiovasculares y de fuerza.
+
+⚠️ Prevención de Lesiones
+✔ No ignores el dolor → Si sientes molestias, detente y evalúa la causa.
+✔ Protege tus articulaciones → Usa vendajes y guantes con buen soporte para muñecas.
+✔ Evita golpear con los nudillos incorrectos → Usa los dos primeros nudillos para evitar fracturas.
+✔ Descansa lo suficiente → El sobreentrenamiento puede llevar a fatiga y lesiones.
