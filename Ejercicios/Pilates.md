@@ -23,9 +23,13 @@ El Pilates es un método de entrenamiento físico y mental que combina fuerza, f
 
 🔥 ¡Conéctate con tu cuerpo y disfruta del Pilates! 💫🧘‍♂️
 
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para Pilates
+✅ Mantén una buena postura → Espalda alineada y core activado.
+🌬 Respira correctamente → Inhala y exhala en sincronía con los movimientos.
+🛑 No fuerces tu cuerpo → Si sientes dolor, ajusta la postura o detente.
+🧘‍♂️ Realiza los movimientos con control → Evita hacerlos rápido o con impulso.
+💦 Hidrátate y descansa → Tu cuerpo necesita recuperación.
+👨‍🏫 Consulta con un instructor si eres principiante → La técnica correcta es clave.
 
-
-
-
-
-
+🔥 ¡Disfruta del Pilates con seguridad y equilibrio! 💫
