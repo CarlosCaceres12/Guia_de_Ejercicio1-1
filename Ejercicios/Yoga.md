@@ -11,3 +11,16 @@ El yoga es una disciplina física, mental y espiritual que combina posturas (asa
 ✅ Reduce el estrés y la ansiedad.
 ✅ Favorece la concentración y la paz mental.
 ✅ Ayuda a la postura y al alivio del dolor.
+
+# Instruciones de Yoga
+Instruciones de yoga
+ChatGPT dijo:
+🧘‍♀️ Instrucciones para Practicar Yoga
+✅ 1. Encuentra un espacio tranquilo → Un lugar sin distracciones te ayudará a concentrarte.
+🧘‍♂️ 2. Usa ropa cómoda → Que te permita moverte libremente.
+🌬 3. Controla tu respiración → Inhala y exhala de manera profunda y consciente.
+🦶 4. Mantén una buena postura → Activa el core y alinea la columna.
+📏 5. No fuerces los estiramientos → Avanza a tu ritmo y respeta tus límites.
+🛑 6. Relájate y disfruta → La práctica es tanto física como mental.
+
+🔥 ¡Fluye con el yoga y encuentra tu equilibrio! ✨🧘‍♂️
