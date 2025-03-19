@@ -22,3 +22,14 @@ La flexibilidad es la capacidad del cuerpo para moverse a través de un rango de
 🛑 6. Evita rebotes bruscos → Haz movimientos lentos y controlados.
 
 🔥 ¡Dedica unos minutos al día y gana más movilidad! 🤸‍♀️💫
+
+# Consejos y Precauciones
+⚠️ Consejos y Precauciones para la Flexibilidad
+✅ Calienta antes de estirar → Evita lesiones preparando los músculos.
+⏳ No fuerces demasiado → La flexibilidad mejora con constancia, no con dolor.
+🌬 Respira profundamente → Relaja el cuerpo y mejora el estiramiento.
+🔄 Trabaja ambos lados del cuerpo → Mantén el equilibrio muscular.
+🛑 Evita rebotes y movimientos bruscos → Puede causar desgarros o lesiones.
+💦 Hidrátate y descansa → Los músculos necesitan recuperación.
+
+🔥 ¡Sé constante y mejora tu movilidad con seguridad! 🤸‍♂️💫
